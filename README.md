@@ -10,3 +10,6 @@ Meu nome é Kawan Ariel Vieira dos Reis
 ### Você pode entrar em contato comigo 📫
 
 kawan.reis@escola.pr.gov.br
+
+
+![](https://media.tenor.com/aaFzYrRVGrEAAAAC/hah-dance.gif)
